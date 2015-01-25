@@ -7,8 +7,7 @@ On this bright and sunny day of 25 January 2015 and after long struggles with re
 
 ### Bragging much?
 
-Nope nope nope, this blog is not about bragging. It might not even be a blog in the end. This is a place of sharing honest thoughts in whichever way they get formulated in our heads. 
-It can include any of the following:
+Nope nope nope, this blog is not about bragging. It might not even be a blog in the end. This is a place of sharing honest thoughts in whichever way they get formulated in our heads. It can include any of the following:
 
 * Ideas and mostly drunken thoughts
 * Regrets
