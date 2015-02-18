@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Let me be
+title: My cover letter
 ---
 
 Dear sir/madam,
