@@ -10,4 +10,5 @@ I am awesome, you have a job offering and my experience suits your needs. Theref
 Looking forward to hearing from you in the near future.
 
 Kind regards,
+
 Misery Vampire
